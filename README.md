@@ -31,7 +31,8 @@ This commands includes
 
 ![Screenshot 2025-05-10 201959](https://github.com/user-attachments/assets/470749f8-1d41-43f0-88f0-44fd37e6ad18)
 
-![Screenshot 2025-05-10 202045](https://github.com/user-attachments/assets/16f13a75-2602-49f1-b4e1-b36676908f6f)
+![Screenshot 2025-05-10 202550](https://github.com/user-attachments/assets/69c67426-d210-4528-9519-310ab16c4ecb)
+
 
 ![Screenshot 2025-05-10 202117](https://github.com/user-attachments/assets/0756e476-090b-4068-aef2-8b99a64219ce)
 
